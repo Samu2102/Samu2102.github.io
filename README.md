@@ -1,0 +1,1 @@
+Instructora buenas noches ya me sirve la ruta del pages pero no me puestra ciertas cosas y ya llevo mas de 2 horas y nada, entonces si cuando vaya a revisar puede abrir la carpeta normal como hicimos la vez pasada y revisar, o si no igual mañna yo paso y le presento, gracias.
